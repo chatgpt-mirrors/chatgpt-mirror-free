@@ -1,7 +1,7 @@
 # 【国内在线免费】ChatGPT免费中文版镜像网站整理（2024/11/20）
 
 本站收录了国内可访问且**免费ChatGPT** **ChatGPT镜像网站**，有需要的可自取。 在国内**无需魔法**就可以直接使用的 **免费ChatGPT中文版镜像网站**。 
-这些网站都是精心整理的，国内ChatGPT、免费ChatGPT、ChatGPT中文版、ChatGPT镜像网站~ 
+这些网站都是精心整理的，国内ChatGPT、免费ChatGPT、ChatGPT中文版、ChatGPT镜像网站~
 
 ## 免费ChatGPT 中文版镜像网站
 
